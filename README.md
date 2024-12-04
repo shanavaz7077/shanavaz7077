@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shanavazshaik7077@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1T6jDEZFNg7izc9z-8n29gpp9KySXHcEs/view?usp=drive_link](https://drive.google.com/file/d/1T6jDEZFNg7izc9z-8n29gpp9KySXHcEs/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1soO2FpjOr8jD_9T8mrAB_nqeXDncKMBV/view?usp=sharing](https://drive.google.com/file/d/1soO2FpjOr8jD_9T8mrAB_nqeXDncKMBV/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
